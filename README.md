@@ -1,3 +1,3 @@
 ﻿# Daedong_Dayt
 
-oh gitkraken controller so hard ㅠㅠ
+oh gitkraken controll so hard ㅠㅠ
